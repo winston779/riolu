@@ -1,6 +1,6 @@
 # RioLU精灵学院机场官网地址
 
-最新地址：[riolu.me](https://www.riolu.me/user#/register?code=rCFsSseL)
+最新地址：[riolu.me](https://ooo.riolu.ooo/user#/register?code=rCFsSseL)
 
 ## RioLU精灵学院介绍
 
